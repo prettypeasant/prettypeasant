@@ -1,1 +1,1 @@
-![visitor count goes here yippee](https://count.getloli.com/@:clwtmc?theme=booru-qualityhentais)
+![visitor count](https://count.getloli.com/@:z0ppi?theme=booru-qualityhentais)
